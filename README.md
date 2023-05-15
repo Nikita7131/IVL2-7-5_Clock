@@ -7,4 +7,4 @@
 
 ![alt tag](https://github.com/Nikita7131/IVL2-7-5_Clock/blob/main/photo_2023-05-15_14-47-27.jpg "Опису не буде")​
 
-![alt tag](https://github.com/Nikita7131/IVL2-7-5_Clock/blob/main/photo_2023-05-15_14-47-41.jpgg "Опису не буде")​
+![alt tag](https://github.com/Nikita7131/IVL2-7-5_Clock/blob/main/photo_2023-05-15_14-47-41.jpg "Опису не буде")​
